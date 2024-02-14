@@ -8,7 +8,7 @@
 
 -💞️ I’m looking to connect and code together! 🚀 #Java #FullStack #WebDevelopment
 
--📫 📧 Email: gr.kishankishorsingh@gmail.com
+-📧 Email: gr.kishankishorsingh@gmail.com
 
 -😄 He/him
 
